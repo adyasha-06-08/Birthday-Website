@@ -42,7 +42,7 @@ We have so many dreams to fulfill together ✨
 You are also my 11:11 wish 🤞❤️
 
 Love you so much, mo dhana 😘<br><br>
-I have no words to describe how much I love you 😘
+I have no words to describe u how much u love you 😘
 
 God’s plan is always better than our dreams ❤️💖
 
