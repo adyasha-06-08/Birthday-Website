@@ -47,7 +47,7 @@ I have no words to describe u how much u love you 😘
 God’s plan is always better than our dreams ❤️💖
 
 Miss you so much, geluuuuu 🥺
-On your birthday, you are not near me, and I miss you even more 🥺🥹😘<br><br>
+On your birthday, you are not near me, and I miss you even more 🥺🥹😘 me being your wife is engough of a birthday gift ❤️🎂 and thanks for tolerating me daily ....😁 award milna chaiye tumhe😁😁  ... hapyyyyyyyy birthdayyyy dayyyyyyyy babyyyyyyyyy😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘😘 pakhare thile infinity gelaaa karithanti 😘😘😘😘😘😘😘😘😘😘😘😘<br><br>
     </p>
     </div>
 
